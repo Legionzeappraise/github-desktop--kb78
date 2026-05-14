@@ -1,4 +1,4 @@
-# 
+# custom GitHub Desktop for PC | GitHub Desktop for Windows Extension | rebase-support + stashing offers the most advanced GitHub Desktop for PC | GitHub Desktop for Windows
 
 
 
